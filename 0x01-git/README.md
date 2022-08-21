@@ -1,1 +1,1 @@
-okey de manager
+Ginny Precious-Stone
